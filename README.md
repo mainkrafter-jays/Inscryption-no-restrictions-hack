@@ -1,0 +1,1 @@
+# Inscryption-no-restrictions-hack
